@@ -1,4 +1,5 @@
-
+      HI THERE 👋👋
+      
  ✨ 🎮 Jogos: Desde clássicos retrô até os mais recentes lançamentos, adoro explorar novos mundos virtuais.
  
 💻 Tecnologia: Fascinado por todas as novidades e avanços tecnológicos que moldam nosso mundo.
