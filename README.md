@@ -1,4 +1,4 @@
-      HI THERE 👋👋
+      Hi There 👋👋
       
  ✨ 🎮 Jogos: Desde clássicos retrô até os mais recentes lançamentos, adoro explorar novos mundos virtuais.
  
